@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jhonjhon22
+- 👀 I love video games. Valorant it's my favorite game actually.
+- 🌱 I’m currently learning programming for web.
+- 📫 How to reach me? Just send me an e-mail! jhonatthan.filho09@aluno.ifce.edu.br
